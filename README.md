@@ -1,1 +1,1 @@
-# Shreya-s-Style-Studio
+# Shreya's Style Studio
