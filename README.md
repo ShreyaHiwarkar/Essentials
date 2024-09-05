@@ -1,1 +1,1 @@
-# Shreya's Style Studio
+# Essentials
